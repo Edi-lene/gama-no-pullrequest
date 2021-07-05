@@ -19,3 +19,4 @@
 O que estou achando do curso ?
 
 Muito interessante!
+O curso esta sendo muito importante nesta fase, ele permite praticar muito!
